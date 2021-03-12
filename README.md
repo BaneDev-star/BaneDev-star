@@ -8,3 +8,8 @@ Strong knowledge of Object Oriented JavaScript programming
 
 Linkedin
 https://www.linkedin.com/in/bane-sayasone-266b53203/
+
+Contact
+email: bane.sayasone@gmail.com
+skype: live:.cid.438056e97dcc2b8e
+phone: +8562056946818
